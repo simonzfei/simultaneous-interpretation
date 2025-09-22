@@ -1,1 +1,0 @@
-# samultaneous_interpretation
